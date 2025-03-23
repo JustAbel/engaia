@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-[[de Kristalliantie|de Kristalliantie]] gaat de strijd met [[Trix Domina|Trix Domina]]. Met [[De Pipowagen|De Pipowagen]] Omgebouwd tot hotdog stand en [[Caremfell Arthedain|Caremfell Arthedain]] in de hoofdrol van het theaterstuk kan er weinig misgaan.
+[[de Kristalliantie|de Kristalliantie]] gaat de strijd met [[Trix Domina|Trix Domina]]. Met [[De Pipowagen|De Pipowagen]] Omgebouwd tot hotdog stand en [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] in de hoofdrol van het theaterstuk kan er weinig misgaan.
 
 Tijdens het toneelstuk kom echter [[Joki|Joki]] Zijn deel van de deal vervullen met Caremfell, en verandert hem in [[Tom Domina|Tom Domina]]. Het publiek wordt boos. Om de boze menigte voor te zijn besluiten de helden de eerder geplaatste explosieven af te laten gaan. Trix vliegt van haar zitplek het midden van het plein op en lijkt uitgeschakeld. Totdat ze boos en grimmig gemompel horen. Wanneer Trix opstaat verandert ze in een groot skeletachtige koningin. De strijd begint nu pas echt.
 

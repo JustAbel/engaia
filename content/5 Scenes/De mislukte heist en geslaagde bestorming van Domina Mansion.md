@@ -10,7 +10,7 @@ Er zijn 2 [[Trots|Trots]] aanwezig die in principe makkelijk te overmeesteren zo
 Na het alarm word al snel duidelijk dat naast de twee trotsen beneden, er boven nog 6 aanweizg zijn + de hoofdbewaker van [[Domina Mansion|Domina Mansion]]: Ismaeralda.
 
 De bulky barbarian slaat op de helden in terwijl de Trotsen ze belagen met spreuken. Het tij keert echter snel wanneer [[Eleonoir Bagheera|Eleonoir Bagheera]] in reusvorm de barbaar een koekje van eigen deeg geeft. [[Tjaart Schemer|Tjaart Schemer]] EN [[Atreon Del Stellaris|Atreon Del Stellaris]] slaan de handen ineen en leren de trotsen een dure les over in linie staan door ze met lightning bolts te bekogelen.
-[[Caremfell Arthedain|Caremfell Arthedain]] gebruikt zijn inflict wounds om een van de laatste Trotsen uit te schakelen.
+[[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] gebruikt zijn inflict wounds om een van de laatste Trotsen uit te schakelen.
 
 Net als de helden Ismaeralda willen vastbinden om haar te ondervragen, neemt de laatste cultist het heft in eigen handen en beeindigt Ismaeralda's leven, om vervolgens haar eigen leven te nemen met de cyanide pil in haar kap.
 
@@ -22,7 +22,7 @@ Na een betere inspectie vinden ze het genoemde boek in de boekenkast van Trix en
 
 Achter de deur treffen ze 3 teleportatieportalen aan, een altaar voor [[Aidara|Aidara]] en het [[Schaamtekristal|Schaamtekristal]] van de gildeleiders waar ze naar zochten.
 
-Ze verlaten snel de crimescene met nog wat laatste guards op hun hielen, maar na een slimme pass without trace van [[Caremfell Arthedain|Caremfell Arthedain]] weten ze [[Zwanenrode|Zwanenrode]] achter zich te laten.
+Ze verlaten snel de crimescene met nog wat laatste guards op hun hielen, maar na een slimme pass without trace van [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] weten ze [[Zwanenrode|Zwanenrode]] achter zich te laten.
 
 De stad was al grimmig, maar zou na deze daden nog een stuk harder op lockdown gaan...
 

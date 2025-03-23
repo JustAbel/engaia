@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-Zusje van (o.a.) [[Caremfell Arthedain|Caremfell Arthedain]] en [[Arcil Arthedain|Arcil Arthedain]]. 8 kyklos oud tijdens [[Schaamte in Zwanenrode|Schaamte in Zwanenrode]]
+Zusje van (o.a.) [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] en [[Arcil Arthedain|Arcil Arthedain]]. 8 kyklos oud tijdens [[Schaamte in Zwanenrode|Schaamte in Zwanenrode]]
 
 Nog voor [['Het Evenement'|'Het Evenement']], aan de andere kant van [[Visalavis|Visalavis]] is, zijn Genevieve en Arcil ontvoerd door [[Trots|Trots]] leden.
 
