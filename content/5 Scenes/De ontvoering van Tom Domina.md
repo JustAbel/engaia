@@ -12,7 +12,7 @@ Na het verlies van [[Bello Domina|Bello Domina]] durft Tom al helemaal niet meer
 
 De helden voelen zich bijna een beetje schuldig, maar een plan is een plan.
 
-Met een mechanisch oortje in om met [[Ignatia Cogswizzle|Ignatia Cogswizzle]] te kunnen communiceren, transformeert [[Caremfell Arthedain|Caremfell Arthedain]] zich in Ignatia en gaat hij doen waar hij goed in is; mannen verleiden.
+Met een mechanisch oortje in om met [[Ignatia Cogswizzle|Ignatia Cogswizzle]] te kunnen communiceren, transformeert [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] zich in Ignatia en gaat hij doen waar hij goed in is; mannen verleiden.
 
 Hij sneakt naar binnen en confronteert Tom. De helden wisten stiekem al van een oude crush tussen de twee (Ignatia en Tom dan) en spelen daar slim op in.
 
