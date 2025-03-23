@@ -20,7 +20,7 @@ Japheth begint te lachen en blijkt een hologram te zijn. Hij vertelt de helden d
 
 Tegelijkertijd horen de helden beneden de deur openslaan. Het is [[Charcuterie|Charcuterie]], eerder gezien in [[Gemuteerde ratten en een groot monster|Gemuteerde ratten en een groot monster]], samen met 4 Trotsleden die hem in bedwang proberen te houden.
 
-De helden gaan het gevecht aan maar hebben het zwaar. Nadat de Trotsleden worden uitgeschakeld wordt duidelijk dat de controle over Charcuterie lastig te behouden is. [[Atreon Del Stellaris|Atreon Del Stellaris]] gebruikt zijn lightning bolt, niet wetende dat dit de vijand juist zou versterken. [[Caremfell Arthedain|Caremfell Arthedain]] slaagt erin wonden toe te dienen, en wanneer het monster wankel wordt, verschijnt ineens de echte Japheth.
+De helden gaan het gevecht aan maar hebben het zwaar. Nadat de Trotsleden worden uitgeschakeld wordt duidelijk dat de controle over Charcuterie lastig te behouden is. [[Atreon Del Stellaris|Atreon Del Stellaris]] gebruikt zijn lightning bolt, niet wetende dat dit de vijand juist zou versterken. [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] slaagt erin wonden toe te dienen, en wanneer het monster wankel wordt, verschijnt ineens de echte Japheth.
 
 Hij moest en zou zijn kind verdedigen, en heeft hiervoor nog iets gedaan wat hem later duur ziu komen te staan: een [[Schaamtekristal|Schaamtekristal]] van [[Trix Domina|Trix Domina]] stelen.
 
