@@ -8,7 +8,7 @@ Hun avontuur begon met de campagne [[Schaamte in Zwanenrode|Schaamte in Zwanenro
 | ------------------------ | ----------------- |
 | [[Eleonoir Bagheera|Eleonoir Bagheera]]      | Tanja Quaijtaal   |
 | [[Tjaart Schemer|Tjaart Schemer]]       | Pieter Seinen     |
-| [[Caremfell Arthedain|Caremfell Arthedain]]  | Rajiv Gokhale     |
+| [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]]  | Rajiv Gokhale     |
 | [[Atreon Del Stellaris|Atreon Del Stellaris]] | Rowando Schippers |
 Het avontuur is gestart op 5-1-2024, of de derde Decres in Dracoleo in kyklos 259.
 
