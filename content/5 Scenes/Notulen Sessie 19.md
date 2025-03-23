@@ -82,7 +82,8 @@ De helden lezen terwijl ze wachten
 - Atreon leest in Eten als de profeten. profeet 1 Jesus. "Water bij de wijn" gerecht met wijn en vis.  
    
 - Elenoire leest "Sprookjes van Faunaria". Sprookje 1: sprookje over een schorpioenkoninging en haar partner; de prins. De prins heeft een affaire met een heks en wordt betrapt door de koningin. De prins droeg plots een amulet. De koningin dacht dat de prins wel vervloekt moest zijn door de heks, anders zou hij haar nooit verraden. De koniging liet de heks daarom verbranden. De heks vervloekt de koningin tot een eeuwigheid aan eenzaamheid. Volgens de legende is de koninging nog steed te vinden in het aswoud met haar amulet & heeft ze inderdaad nooit rust gevonden.  
-  
+  [[Sprookjes van Faunaria|Sprookjes van Faunaria]]
+- 
 Wagen is gerepareerd. Het schilderwerk is prachtig kleurrijk "Betty's Boekenbus" met regenboogletters?  
   
 Het peerd heet *Tamara* het paard heet *Kristalla*. De werknemers van de stabiele stable krijgen een luxueus diner van Atreon. "Licht-geroosterd gras met sesam. Okonomiyaki gras (gerecht met gras / ei) als toetje een gras-flan". De helden betalen Camino en zijn crew 160 goudstukken (want elenoire wil graag een fooi geven & vind 150 door vier delen irritant.)  
