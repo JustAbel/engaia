@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-Na het gevecht [[Oppertrots in de Gobblergrot|Oppertrots in de Gobblergrot]] komt [[Caremfell Arthedain|Caremfell Arthedain]] een mysterieus stuk papier onder ogen. 
+Na het gevecht [[Oppertrots in de Gobblergrot|Oppertrots in de Gobblergrot]] komt [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] een mysterieus stuk papier onder ogen. 
 
 Hierop is met tekeningen meer te leren over de locatie van de [[Schaamtekristal|Schaamtekristal]]len en, nog veel belangrijker, de locatie van 2 jonge half-elven.
 
