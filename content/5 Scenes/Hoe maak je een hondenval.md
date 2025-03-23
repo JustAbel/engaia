@@ -9,7 +9,7 @@ De ochtend erna gaat Tom er samen met 4 van de wachten en Bello op uit. [[Atreon
 
 Wanneer Bello uit het zicht van Tom en de lelies is, gebruikt [[Tjaart Schemer|Tjaart Schemer]] zijn magie om de hond te teleporteren naar hun vernuftige val.
 
-Hier staat [[Caremfell Arthedain|Caremfell Arthedain]] klaar met een spreuk om te zorgen dat er geen geluid kan ontstaan, en [[Eleonoir Bagheera|Eleonoir Bagheera]] klaar om, nouja, een stel klappen uit te delen.
+Hier staat [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] klaar met een spreuk om te zorgen dat er geen geluid kan ontstaan, en [[Eleonoir Bagheera|Eleonoir Bagheera]] klaar om, nouja, een stel klappen uit te delen.
 
 Terwijl de twee hun best doen om de hond vast te pakken en de halsband af te doen, lijken ze een soort safety mechanism te doen afgaan. Bello de hond verandert plots in een groot moordbeest, zoals Eleonoir het noemde!
 
