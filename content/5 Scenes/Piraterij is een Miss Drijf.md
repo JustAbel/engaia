@@ -3,7 +3,7 @@ share: true
 ---
 Nadat [[de Kristalliantie|de Kristalliantie]] in [[Larumkade|Larumkade]] arriveerde met reisgenoot [[Tektiv Qinulitomi|Tektiv Qinulitomi]], en een heerlijke maaltijd hebben gegeten die [[Atreon Del Stellaris|Atreon Del Stellaris]] heeft bereid voor de deur van [[De Smakelijke Scharrelaar|De Smakelijke Scharrelaar]], belanden zij in taverne [[De Echte Ekster|De Echte Ekster]].
 
-Hier worden ze warm ontvangen door [[Dora Keldon|Dora Keldon]] en, zeker madat [[Caremfell Arthedain|Caremfell Arthedain]] een rondje [[La Rum Pils|La Rum Pils]] voor de hele taverne haalt, ook door de rest van de gasten.
+Hier worden ze warm ontvangen door [[Dora Keldon|Dora Keldon]] en, zeker madat [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] een rondje [[La Rum Pils|La Rum Pils]] voor de hele taverne haalt, ook door de rest van de gasten.
 
 Nadat ze ingecheckt zijn wordt Caremfell naar een tafel gewuifd. Hier ontmoet de groep kapitein [[Nadi Pari|Nadi Pari]] van[[Hare Majesboot|Hare Majesboot]] en [[Kapitein Kroek|Kapitein Kroek]] van de [[Sub Optima|Sub Optima]]. Door de aanwezigheid van [[Puls|Puls]] blijkt het vaarverkeer in [[Larumkade|Larumkade]] stop gezet. Deze twee pira... ehm zeelieden weten hier echter wel raad mee. De Kristalliantie wordt de dag erna uitgenodigd om naar de shipyard te komen om een doorreis te bespreken.
 
