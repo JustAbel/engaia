@@ -1,11 +1,11 @@
 ---
 share: true
 ---
-Tijdens [[De Grote Theater Showdown|De Grote Theater Showdown]], of beter gezegd, nét voor de bom losbarstte, speelt [[Caremfell Arthedain|Caremfell Arthedain]] samen met [[Spicy Mayo|Spicy Mayo]] een voorbereid toneelstuk voor de inwoners van [[Zwanenrode|Zwanenrode]]. 
+Tijdens [[De Grote Theater Showdown|De Grote Theater Showdown]], of beter gezegd, nét voor de bom losbarstte, speelt [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] samen met [[Spicy Mayo|Spicy Mayo]] een voorbereid toneelstuk voor de inwoners van [[Zwanenrode|Zwanenrode]]. 
 
 Terwijl [[De Pipowagen|De Pipowagen]] verhuld als foodtruck met een vermomde [[Tjaart Schemer|Tjaart Schemer]] en [[Atreon Del Stellaris|Atreon Del Stellaris]] achter de stoelen staat, spelen [[De Groenklavers|De Groenklavers]] de sterren van de hemel.
 
-Wanneer de climax en grote ontmaskering van [[Trix Domina|Trix Domina]] echter plaats hoort te vinden, hoort [[Caremfell Arthedain|Caremfell Arthedain]] ineens iets in zijn oor: 
+Wanneer de climax en grote ontmaskering van [[Trix Domina|Trix Domina]] echter plaats hoort te vinden, hoort [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] ineens iets in zijn oor: 
 
 "Sneller dan je had verwacht, maar een deal is een deal! Hihihi"
 
