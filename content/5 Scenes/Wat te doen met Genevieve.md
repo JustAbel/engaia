@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-[[Caremfell Arthedain|Caremfell Arthedain]] brengt de avond door in [[De Groenklavers|De Groenklavers]] stamkroeg [[Klavertje Bier|Klavertje Bier]]. Met z'n jonge zusje [[Genevieve Arthedain|Genevieve Arthedain]], die net weer terug is getransformeerd van een kat [[Shimmy|Shimmy]] naar elvenkind. De vloek van [[Trix Domina|Trix Domina]] is eindelijk opgeheven. 
+[[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] brengt de avond door in [[De Groenklavers|De Groenklavers]] stamkroeg [[Klavertje Bier|Klavertje Bier]]. Met z'n jonge zusje [[Genevieve Arthedain|Genevieve Arthedain]], die net weer terug is getransformeerd van een kat [[Shimmy|Shimmy]] naar elvenkind. De vloek van [[Trix Domina|Trix Domina]] is eindelijk opgeheven. 
 
 Genevieve drinkt met plezier chocomel en verteld haar grote broer dat ze heel blij is dat ze een kind is en demonstreert alle kunstjes die ze nu  als mens kan doen. Ze vraagt of ze nu weer terug gaan naar [[Ooi en Vaart|Ooi en Vaart]]. Caremfell wordt serieus en verteld dat hij nog hun broertje moet terugvinden. Hij vraagt Genevieve of ze terug wilt.
   

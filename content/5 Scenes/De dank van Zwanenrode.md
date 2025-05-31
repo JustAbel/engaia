@@ -6,7 +6,7 @@ share: true
 Tom kondigt aan dat de helden een beloning verdienen: 500g per persoon.  
 Ook heeft hij wat persoonlijke giften voorbereid voor de helden.  
 
-Voor [[Caremfell Arthedain|Caremfell Arthedain]] heeft Tom Domina een 'ring of ringbearing bear' als cadeau. Hiermee kan Caremfull praten met dieren, ze intimideren of juist vrienden met ze worden.  
+Voor [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] heeft Tom Domina een 'ring of ringbearing bear' als cadeau. Hiermee kan Caremfull praten met dieren, ze intimideren of juist vrienden met ze worden.  
 ![[Ring of the Ring Bearing Bear|Ring of the Ring Bearing Bear]]
 Voor [[Atreon Del Stellaris|Atreon Del Stellaris]] heeft Tom Domina een "shield of the soaring Squirrel". 
 Een schild wat hij magisch in de lucht kan gooien waardoor het schild de drager beschermt zonder dat het vastgehouden wordt.  

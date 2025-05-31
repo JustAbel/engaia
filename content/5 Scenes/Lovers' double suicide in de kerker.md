@@ -4,7 +4,7 @@ share: true
 ![[Domina mansion DA.png|Domina mansion DA.png]]
 Na [[Gemuteerde ratten en een groot monster|Gemuteerde ratten en een groot monster]] komt [[de Kristalliantie|de Kristalliantie]] aan bij de kelder van [[Domina Mansion|Domina Mansion]]. 
  
-[[Caremfell Arthedain|Caremfell Arthedain]] disguises self als [[Tom Domina|Tom Domina]] en neemt de wacht mee.  
+[[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] disguises self als [[Tom Domina|Tom Domina]] en neemt de wacht mee.  
   
 Bij terugkomst tackelt [[Eleonoir Bagheera|Eleonoir Bagheera]] de guard en [[Atreon Del Stellaris|Atreon Del Stellaris]] probeert een aardappel in zijn mond te stoppen. Dit mislukt en hij word in zijn hand gebeten. [[Tjaart Schemer|Tjaart Schemer]] probeert hem gerust te stellen door [[De Blauwe Lelie|De Blauwe Lelie]] en dit geeft de[[Trots|Trots]] door dat het niet klopt. Eleonoir knockt hem uit. De uitgemergelde gildeleiders worden ontdekt aan het einde van de gang!
 Het blijkt dat zij al sinds [['Het Evenement'|'Het Evenement']] opgesloten zitten en Trix al die tijd zich als hun heeft voorgedaan d.m.v. transformatie magie!
