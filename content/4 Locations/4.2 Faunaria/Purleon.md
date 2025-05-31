@@ -1,6 +1,7 @@
 ---
 share: true
 ---
+![[Picsart_25-05-15_18-44-58-749.jpg|Picsart_25-05-15_18-44-58-749.jpg]]
 Stam in het midden van [[Faunaria|Faunaria]] aan de oostkant van het [[Aswoud|Aswoud]]. Heldin [[Eleonoir Bagheera|Eleonoir Bagheera]] is hier vandaan afkomstig.
 
 Hier maken de Leonin van de [[Prowling Forest Clan|Prowling Forest Clan]] de dienst uit over de stad en de Tabaxi die er wonen. 
