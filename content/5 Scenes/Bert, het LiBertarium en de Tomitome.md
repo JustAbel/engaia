@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-Na aankomst in [[Bestaportia|Bestaportia]] besluit de groep het [[Het Libertarium|Het Libertarium]] te verkennen, een immense bibliotheek vol met boeken en kennis. Het libertarium blijkt een imposante plek: gigantische plafondhoge boekenkasten, vergezeld van rolladders, smalle gangpaden en een grote marmeren wenteltrap die naar de bovenste verdiepingen leidt. De spelerpersonages kijken bewonderend rond, vooral [[Caremfell Arthedain|Caremfell Arthedain]] die duidelijk onder de indruk is van de omvang van de verzameling.
+Na aankomst in [[Bestaportia|Bestaportia]] besluit de groep het [[Het Libertarium|Het Libertarium]] te verkennen, een immense bibliotheek vol met boeken en kennis. Het libertarium blijkt een imposante plek: gigantische plafondhoge boekenkasten, vergezeld van rolladders, smalle gangpaden en een grote marmeren wenteltrap die naar de bovenste verdiepingen leidt. De spelerpersonages kijken bewonderend rond, vooral [[Caremfell Lucian Arthedain|Caremfell Lucian Arthedain]] die duidelijk onder de indruk is van de omvang van de verzameling.
 
 Bij de balie treffen ze [[Cornelis Stofkap IV|Cornelis Stofkap IV]], een uilachtige bibliothecaris met een ietwat chagrijnige uitstraling. Cornelis, druk bezig met het organiseren van boeken en documenten, lijkt niet direct hulpvaardig maar antwoordt uiteindelijk toch op hun vragen. Hij verwijst hen naar zijn nicht [[Betty Stofkap|Betty Stofkap]], die in een kantoor achterin de bibliotheek werkt en mogelijk meer informatie kan geven over Bert, de persoon die de groep zoekt.
 
