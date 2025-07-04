@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-Horren is een van de grootste open nederzettingen van [[Faunaria|Faunaria]]. In de open velden van het noord-oosten van het land wonen hier de [[Taurox|Taurox]]. 
+Horren is een van de grootste open nederzettingen van [[Faunaria|Faunaria]]. In de open velden van het noord-oosten van het land wonen hier de [[Taurox|Taurox]]. Leider: [[De Moeder|De Moeder]]
 
 Omgeven door heuvelachtig grasgebied bevindt zich hier een tal van houten grote woningen, zonder vloer. De stevige Taurox zijn enorm vriendelijk en verwelkomend. 
 
