@@ -11,5 +11,5 @@ Ondanks de hulp van [[De Blauwe Lelie|De Blauwe Lelie]] gaat het niet van een le
 ![[Pasted image 20240928060927.png|Pasted image 20240928060927.png]]
 
 ![[WhatsApp Image 2024-08-27 at 12.59.51_ade6b487.jpg|WhatsApp Image 2024-08-27 at 12.59.51_ade6b487.jpg]]
-[[Session 14|Session 14]]
+[[Session 14 Het einde van Trix Domina|Session 14 Het einde van Trix Domina]]
 Gevochten [[Trix Domina|Trix Domina]]
