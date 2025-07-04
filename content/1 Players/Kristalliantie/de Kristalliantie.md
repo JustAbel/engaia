@@ -41,9 +41,11 @@ Het avontuur is gestart op 5-1-2024, of de derde Decres in Dracoleo in kyklos 25
 * [[De Eerste Avond in Bestaportia|De Eerste Avond in Bestaportia]]
 * [[Bert, het LiBertarium en de Tomitome|Bert, het LiBertarium en de Tomitome]]
 * [[Fluf Langoor en Betty's Boekenbus|Fluf Langoor en Betty's Boekenbus]]
-* [[Caremfell in Capivaral|Caremfell in Capivaral]]
+* [[Capivaral in met Caremfell|Capivaral in met Caremfell]]
 * [[De Bindende Bruiloft|De Bindende Bruiloft]]
 * [[De Clash van Qinuli en Cheka|De Clash van Qinuli en Cheka]]
+* [[Redden van Purleon|Redden van Purleon]] TO DO
+* [[Scenes Post-Purleon Pre-Burrowkin|Scenes Post-Purleon Pre-Burrowkin]]
 * 
 
 
