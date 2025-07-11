@@ -1,7 +1,7 @@
 ---
 share: true
 ---
-Onder [[Zwanenrode|Zwanenrode]] is een gigantisch rioolstelsel waar niet alleen uitwerpselen, maar ook de betere smokkelaars van [[De Purplers|De Purplers]] graag gebruik van maken.
+Onder [[Zwanenrode|Zwanenrode]] is een gigantisch rioolstelsel waar niet alleen uitwerpselen, maar ook de betere smokkelaars van [[Violotus|Violotus]] graag gebruik van maken.
 
 Toen [[de Kristalliantie|de Kristalliantie]] hier de eerste keer doorheen trok kwamen zij met wat ratfolk in de clinch. Tijdens een stand off waar uiteindelijk ook het monster [[Charcuterie|Charcuterie]] zich in weet te mengen, lukt het de helden ter nauwernood, met behulp van de toen nog gemaskerde [[Sjouke Schemer|Sjouke Schemer]], te ontkomen.
 
