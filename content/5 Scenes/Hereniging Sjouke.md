@@ -11,4 +11,4 @@ Na een korte scuffle staan Tjaart en hij oog in oog en wordt het snel duidelijk.
 
 [[Mersche|Mersche]] is [[Sjouke Schemer|Sjouke Schemer]], de lang verloren broer.
 
-Ze vliegen elkaar in de armen en alles voelt weer snel als vanouds. Sjouke vertelt dat hij na zijn vertrek bij [[De Blauwe Lelie|De Blauwe Lelie]] na [[Het Magieverbod|Het Magieverbod]], kort bij [[De Purplers|De Purplers]] heeft meegelopen en uiteindelijk het ToverZet is gestart samen met[[Siem en Iesa|Siem en Iesa]].
+Ze vliegen elkaar in de armen en alles voelt weer snel als vanouds. Sjouke vertelt dat hij na zijn vertrek bij [[De Blauwe Lelie|De Blauwe Lelie]] na [[Het Magieverbod|Het Magieverbod]], kort bij [[Violotus|Violotus]] heeft meegelopen en uiteindelijk het ToverZet is gestart samen met[[Siem en Iesa|Siem en Iesa]].
