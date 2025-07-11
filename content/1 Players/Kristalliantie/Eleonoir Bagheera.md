@@ -15,7 +15,7 @@ Terwijl ze een pakketje aan het oppikken was voor de Leonin in het kamp, viel ze
 Ze besluit onderweg naar de haven voor meer informatie, eerst te stoppen bij [[De Zon van de Nacht|De Zon van de Nacht]], de enige human clan in het oosten waar ze van weet. De plek is dan wel een troepje, maar ze zou daar in ieder geval niet opvallen. Wanneer ze wat eten koopt op de markt botst er ineens een verwarde vrouw tegen haar aan. Voordat Eleonoir uit reactie een krab beweging doet wordt ze diep in de ogen aangekeken: "Jij hoort hier niet, JIJ HOORT HIER NIET." zegt de verwarde vrouw "Jouw verlies is nu hun kracht, een kristal door trots verheven. In het westen ligt het antwoord om niet langer in schaamte te hoeven leven.". 
 
 Dat kon maar één plek betekenen: [[Visalavis|Visalavis]]
-Nadat Eleonoir aankomt op [[Larumkade|Larumkade]] hoort ze dat als informatie is wat ze zoekt, ze het best kan informeren in [[Zwanenrode|Zwanenrode]] bij [[De Purplers|De Purplers]]. Ze besluit hier te "infiltreren" en hopelijk meer te weten te komen over haar [[Schaamtekristal|Schaamtekristal]].
+Nadat Eleonoir aankomt op [[Larumkade|Larumkade]] hoort ze dat als informatie is wat ze zoekt, ze het best kan informeren in [[Zwanenrode|Zwanenrode]] bij [[Violotus|Violotus]]. Ze besluit hier te "infiltreren" en hopelijk meer te weten te komen over haar [[Schaamtekristal|Schaamtekristal]].
 
 Maanden passeren zonder veel nieuwe informatie, totdat ze op zekere Descrescens, na een sparringsronde in de ring met [[Fishy Freddy|Fishy Freddy]], in haar postvakje kijkt.. Een oproep? Van de Domina's?
 
