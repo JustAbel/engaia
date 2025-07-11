@@ -6,7 +6,7 @@ Oudere broer van [[Tjaart Schemer|Tjaart Schemer]] en zoon van [[Lysea Schemer|L
 Oorspronkelijk, net als zijn familieleden voor hem, rekruut geworden bij [[De Blauwe Lelie|De Blauwe Lelie]].
 Hier "jumped" hij de ranks in no-time en weet hij iedereen's verwachtingen te overtreffen.
 Na [[Het Magieverbod|Het Magieverbod]] echter in conflict geraakt met zijn moeder en uiteindelijk het huis verlaten.
-Na een tijdje bij [[De Purplers|De Purplers]] te hebben gelopen van de kaart verdwenen en in het geheim het [[ToVerzet|ToVerzet]] gestart onder codenaam [[Mersche|Mersche]] 
+Na een tijdje bij [[Violotus|Violotus]] te hebben gelopen van de kaart verdwenen en in het geheim het [[ToVerzet|ToVerzet]] gestart onder codenaam [[Mersche|Mersche]] 
 
 
 
