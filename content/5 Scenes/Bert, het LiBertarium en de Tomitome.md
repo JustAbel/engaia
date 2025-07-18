@@ -10,3 +10,5 @@ Wanneer ze Betty ontmoeten, toont zij een energiekere houding dan haar oom. Ze b
 Ondertussen probeert Betty te achterhalen wie Bert zou kunnen zijn. Ze herkent de naam niet direct, maar hint op een mogelijke connectie met Ignacia, hun kameraad. Ze vertelt dat zij en [[Ignatia Cogswizzle|Ignatia Cogswizzle]] vroeger veel samen hebben gestudeerd en dat ze goede herinneringen aan haar tijd in [[Zwanenrode|Zwanenrode]] heeft. 
 
 Na deze kennismaking vertelt Betty [[de Kristalliantie|de Kristalliantie]] over [[De Tomitome|De Tomitome]]
+
+![[Pasted image 20250716141603.png|Pasted image 20250716141603.png]]

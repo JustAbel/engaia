@@ -20,7 +20,7 @@ Het avontuur is gestart op 5-1-2024, of de derde Decres in Dracoleo in kyklos 25
 ![[WhatsApp Image 2024-08-27 at 10.21.44_4ff65f39.jpg|WhatsApp Image 2024-08-27 at 10.21.44_4ff65f39.jpg]]
 ![[WhatsApp Image 2024-06-01 at 11.11.08_28901068 1.jpg|WhatsApp Image 2024-06-01 at 11.11.08_28901068 1.jpg]]
 ![[WhatsApp Image 2024-04-29 at 08.08.11_a3862918.jpg|WhatsApp Image 2024-04-29 at 08.08.11_a3862918.jpg]]
-
+![[WhatsApp Image 2024-08-27 at 12.59.51_ade6b487.jpg|WhatsApp Image 2024-08-27 at 12.59.51_ade6b487.jpg]]
 
 ### Scenes
 * [[Pearil in Peerbeek|Pearil in Peerbeek]]
@@ -42,10 +42,12 @@ Het avontuur is gestart op 5-1-2024, of de derde Decres in Dracoleo in kyklos 25
 * [[Bert, het LiBertarium en de Tomitome|Bert, het LiBertarium en de Tomitome]]
 * [[Fluf Langoor en Betty's Boekenbus|Fluf Langoor en Betty's Boekenbus]]
 * [[Capivaral in met Caremfell|Capivaral in met Caremfell]]
+* [[3 kamp-eren met Rora|3 kamp-eren met Rora]] 
+* [[De Crypt van de Schorpioenkoningin|De Crypt van de Schorpioenkoningin]] 
 * [[De Bindende Bruiloft|De Bindende Bruiloft]]
 * [[De Clash van Qinuli en Cheka|De Clash van Qinuli en Cheka]]
 * [[Redden van Purleon|Redden van Purleon]] TO DO
-* [[Scenes Post-Purleon Pre-Burrowkin|Scenes Post-Purleon Pre-Burrowkin]]
+* [[Van Purleon naar Burrowkin|Van Purleon naar Burrowkin]]
 * 
 
 

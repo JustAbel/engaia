@@ -20,4 +20,4 @@ Hier leven vele dierenvolken samen, in en rondom elkaar.
 |                                               |                                          |                                                   |
 |                                               |                                          |                                                   |
 |                                               |                                          |                                                   |
-![[Faunaria.png|Faunaria.png]]
+![[IMG-20250128-WA0001.jpg|IMG-20250128-WA0001.jpg]]
