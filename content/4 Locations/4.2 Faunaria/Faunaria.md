@@ -20,4 +20,4 @@ Hier leven vele dierenvolken samen, in en rondom elkaar.
 |                                               |                                          |                                                   |
 |                                               |                                          |                                                   |
 |                                               |                                          |                                                   |
-![[IMG-20250128-WA0001.jpg|IMG-20250128-WA0001.jpg]]
+![[Werknouuuu.jpg|Werknouuuu.jpg]]
