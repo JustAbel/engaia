@@ -19,7 +19,7 @@ Voorbeelden van plekken die bezocht kunnen worden zijn:
 | [[De Platte Poes|De Platte Poes]]       | Taverne               | [[Klaas Kwaak|Klaas Kwaak]],                           |
 | [[Floraria|Floraria]]             | Botanische tuin       | [[Connie Veer|Connie Veer]]                            |
 | [[Het Houten Paard|Het Houten Paard]]     | Parel Restaurant      | [[Koe-lin Airgo|Koe-lin Airgo]]                          |
-| [[De Bittere Pil|De Bittere Pil]]       | Apotheek              |                                            |
+| [[De Bittere Pil|De Bittere Pil]]       | Apotheek              | [[Bita Boe|Bita Boe]]                               |
 | [[Het Zompige Zakje|Het Zompige Zakje]]    | Theehuis              | [[Ziza Bestitomi|Ziza Bestitomi]]                         |
 | [[De Plaza To Be|De Plaza To Be]]       | Marktplein            | Verschillend                               |
 | [[UvB|UvB]]                  | Academie              |                                            |

@@ -1,4 +1,4 @@
 ---
 share: true
 ---
-Apotheek in [[Bestaportia|Bestaportia]]
+Apotheek in [[Bestaportia|Bestaportia]], eigenaar [[Bita Boe|Bita Boe]]
