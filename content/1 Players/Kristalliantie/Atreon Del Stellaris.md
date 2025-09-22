@@ -28,6 +28,7 @@ Uiteindelijk kwam hij aan in de stad Zwanenrode om te leren van [[Siem en Iesa|S
 * [[Goblin Bag of Cooking|Goblin Bag of Cooking]]
 * [[Staff of Cherry Blossom|Staff of Cherry Blossom]]
 * [[Shield of the Soaring Squirrel|Shield of the Soaring Squirrel]]
+* [[Chef's Cap of Prana's Helper|Chef's Cap of Prana's Helper]] 
 
 ### Scenes (& dromen)
 * [[Afscheid Grega|Afscheid Grega]]
