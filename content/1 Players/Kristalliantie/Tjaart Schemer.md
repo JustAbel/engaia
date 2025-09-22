@@ -25,6 +25,7 @@ Totdat er op een dag een messenger van de Domina's voor de deur staat waarna all
 * [[Bag of Schemer|Bag of Schemer]]
 * [[Mother's Mithril|Mother's Mithril]]
 * [[Rune Bracers|Rune Bracers]]
+* [[Shield of Expression|Shield of Expression]] 
 
 ### Scenes
 * [[Confrontatie Tjaart en Age|Confrontatie Tjaart en Age]]

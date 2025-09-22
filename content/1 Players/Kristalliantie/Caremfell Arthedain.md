@@ -25,6 +25,7 @@ Caremfell begint zich haast weer op zijn gemak te voelen in [[Zwanenrode|Zwanenr
 * [[Double Crossbow +1|Double Crossbow +1]]
 * [[Ring of the Ring Bearing Bear|Ring of the Ring Bearing Bear]]
 * [[Totem of Shimmy|Totem of Shimmy]]
+* [[Prana's Blessing|Prana's Blessing]] 
 
 
 ### Scenes
