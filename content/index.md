@@ -6,4 +6,4 @@ Op deze WIKI lees je van alles over de avonturen op [[Engaia|Engaia]]. Je navige
 
 ## Groepen
 **![[de Kristalliantie|de Kristalliantie]]
-Update 31-05-2025
+Update 22-09-2025
