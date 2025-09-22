@@ -25,6 +25,7 @@ Maanden passeren zonder veel nieuwe informatie, totdat ze op zekere Descrescens,
 * [[Cloak of Protection|Cloak of Protection]]
 * [[Ink-redible Paws|Ink-redible Paws]]
 * [[Glaring Lenses|Glaring Lenses]]
+* [[Earring of Feather Fall|Earring of Feather Fall]] 
 
 ### Scenes
 * [[De Leonin's Blessing|De Leonin's Blessing]]
